@@ -7,3 +7,4 @@
 
 
 صفحه Diagnosis of symptoms of stress or anxiety from treatment sessions توسط فاطمه رعیت خواه در حال تکمیل است .
+صفحه  تشخیص رتینوپاتی دیابتی در تصاویر شبکیه چشم توسط محمدعلی مرادی دستجردی در حال تکمیل است.
